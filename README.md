@@ -2,7 +2,7 @@
 - 👀 Gosto e sou muito interresada em jogos e sites produtivos
 - 🌱 Estou aprendendo mais sobre programação
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me 61992560656
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: ...
 
